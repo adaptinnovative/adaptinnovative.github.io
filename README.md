@@ -1,1 +1,0 @@
-# adaptinnovative.github.io
